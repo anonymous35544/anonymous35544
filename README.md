@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on duscord
 - 📫 How to reach me= through my discord server 
 - 🔗 Link to get in touch on my discord= https://discord.gg/FbagUnEJ62
-
+-
 - 👋 Hola, soy @anonymous35544
 -👀 Estoy interesado en el juego
 - 🌱 Actualmente estoy aprendiendo programación
