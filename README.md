@@ -2,5 +2,12 @@
 - 👀 I’m interested in the gaming
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on duscord
-- 📫 How to reach me= through my discord server in the github talk part 
-- 🔗 Link to get in touch on my discord= https://discord.gg/ufMChXyWUe
+- 📫 How to reach me= through my discord server 
+- 🔗 Link to get in touch on my discord= https://discord.gg/FbagUnEJ62
+
+- 👋 Hola, soy @anonymous35544
+-👀 Estoy interesado en el juego
+- 🌱 Actualmente estoy aprendiendo programación
+- 💞️ Busco colaborar en duscord
+- 📫 Cómo contactarme = a través de mi servidor de discordia
+- 🔗 Link para contactarme en mi discord= https://discord.gg/FbagUnEJ62
